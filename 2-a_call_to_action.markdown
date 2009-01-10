@@ -11,7 +11,11 @@ Pings: On
 Comments: On
 Category: chaos
 
-As is customary my contact Alycard got in touch with me about a job needing attention. I was living in relative comfort after my last commission but there was a need welling up inside of me. I needed to do something, anything really I just wasn't involved and I wasn't feeling connected to what was going on around me so I decided to take the job without any real research.<!--more--> When I told Alycard immediately I accepted he seemed a little surprised (which for him probably meant he was absolutely shocked), after all he knew it was customary for me to do a little research and so he expected me to want at least a day to look into things.
+As is customary my contact Alycard got in touch with me about a job needing attention. I was living in relative comfort after my last commission but there was a need welling up inside of me. I needed to do something, anything really I just wasn't involved and I wasn't feeling connected to what was going on around me so I decided to take the job without any real research.
+
+✂------✂------✂------✂------✂------✂------✂------✂------✂------✂------
+
+When I told Alycard immediately I accepted he seemed a little surprised (which for him probably meant he was absolutely shocked), after all he knew it was customary for me to do a little research and so he expected me to want at least a day to look into things.
 
 As soon as I accepted I went to work preparing to travel, packing up my daggers, special treasures and rewards as well as my dark suit for night work. Once I had all the important things packed I went directly down and got myself in touch with Alycard's wizard to get my transport taken care of. I know the commission I pay for the quick transport is too much, but this job is a couple days ride away and I want to get into it and quickly.
 
